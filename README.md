@@ -1,3 +1,6 @@
+
+
+
 Rabisco todos os cadernos com árvores. 
 
 Descubro filosofia em tudo que eu vejo. 
